@@ -4,3 +4,4 @@ life is a war
 counting my blessings
 help your brother
 missing momma
+show some sympathy
