@@ -8,3 +8,4 @@ show some sympathy
 How many men gonna make it?
 brenda is there!!
 just want to be good
+be good to people!!
