@@ -19,3 +19,4 @@ change is important
 i'm hard to the core!!!!
 loud mouth mf....
 i'm the fucking hero
+i won't work empty handed
